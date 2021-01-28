@@ -1,4 +1,4 @@
-### Hi there 👋
+### GG GG GG
 
 <!--
 **LucaSala777/LucaSala777** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
